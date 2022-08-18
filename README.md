@@ -1,2 +1,0 @@
-# mahato
-hemlo world
